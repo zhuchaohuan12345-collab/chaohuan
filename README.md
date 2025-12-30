@@ -1,4 +1,4 @@
-# Hi there, I'm chaohuan
+# Hi there, I'm Amy Schmaling
 
 ## 🎓 About Me
 - 🏫 I'm currently a student at **Hillsborough Community College**.
